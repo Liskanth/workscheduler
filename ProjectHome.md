@@ -1,0 +1,1 @@
+Schedule the work for the day.Planning you work is so important , poor planning dooms you to failure to meet any expected deadlines or do quality work.
